@@ -45,8 +45,8 @@ Improving security operations by applying key SOC metrics:
 ---
 
 ## 📫 How to Reach Me  
-- 💼 LinkedIn: (Add your link)  
-- 📧 Email: (Add your email)  
+- 💼 LinkedIn: (linkedin.com/in/nelson-richard-5a506b244)  
+- 📧 Email: (iamnelsonr@gmail.com)  
 
 ---
 
